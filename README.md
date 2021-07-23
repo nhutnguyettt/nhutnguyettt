@@ -1,2 +1,2 @@
-hi i love u everyday ❤️
-you are my baby 
+hi i love u everyday 
+yeu em gat nhieu
